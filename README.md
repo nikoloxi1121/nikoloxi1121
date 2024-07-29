@@ -1,5 +1,4 @@
-
-![290078797-bea7769e-cd87-495f-ad0e-04ddfbb73091](https://github.com/user-attachments/assets/aba30c29-a871-4ec8-a51a-4836a91534c0)
+<img src = "![290078797-bea7769e-cd87-495f-ad0e-04ddfbb73091](https://github.com/user-attachments/assets/59b12330-68c9-4a7f-878f-86dad8cf89e3)" style = "margin-left; 20 px:>
 
 
 <h1 align="center">Hi 👋, I'm Nikoloz</h1>
