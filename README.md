@@ -1,5 +1,5 @@
 
-![212751818-13da6fd2-27ca-45c4-9c64-3940ccfa6fd3](https://github.com/user-attachments/assets/3c03aff1-a92e-4852-9b3d-faecc76200e1)
+![290078797-bea7769e-cd87-495f-ad0e-04ddfbb73091](https://github.com/user-attachments/assets/aba30c29-a871-4ec8-a51a-4836a91534c0)
 
 
 <h1 align="center">Hi 👋, I'm Nikoloz</h1>
